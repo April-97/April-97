@@ -1,5 +1,4 @@
-- Hey there!
-- I'm April, I'm 25 and I'm from the UK
+- April/25/UK
 - She/Her
 - Queen of ✨p r o c r a s t i n a t i o n✨, averse to productivity
 
